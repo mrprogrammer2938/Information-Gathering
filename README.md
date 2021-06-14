@@ -16,6 +16,6 @@ python3 Information-Gathering.py
 
 ### [Mr.nope](https://github.com/mrprogrammer2938) Account...
 
-[Instagram](https://instagram.com/programmer2938
+[Instagram](https://instagram.com/programmer2938)
 
-[Pinterest](https://www.pinterest.com/m
+[Pinterest](https://www.pinterest.com/mrprogrammer2938)
